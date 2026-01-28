@@ -327,4 +327,5 @@ For questions or issues, contact via:
 
 **Built with ❤️ for Handloom Heritage - Celebrating Traditional Indian Textile Art**
 #   t e x t i l e w e b s i t e  
+ #   t e x t i l e w e b s i t e  
  
